@@ -59,7 +59,7 @@ Now let's continue.
 
 ## Really fun facts
 * A guy on medium has an [article](https://medium.com/henngeblog/getting-mind-blown-at-hennge-global-internship-program-7db9791980bc) on this and it's very convenient that he was(and imagine still is) located in Japan.
-* Despite efforts put in making a personal and relevant cover letter as described in [Hennge's on creating the perfect cover letter](https://hennge.com/global/info/henka/interview/202403-crafting-the-perfect-cover-letter) the fact that I do not have a BaC and additional Phd in communicating with dogs and other animals discarded me from the selection, also I am Italian(not in Japan or the United States) and at the time did not have a Github profile which I guess didn't help, but goes to show that they haven't run, read the the code or even skimmed through the cover letter and possibly the curriculum.
+* Despite efforts put in making a personal and relevant cover letter(which you can read and even compile) as described in [Hennge's on creating the perfect cover letter](https://hennge.com/global/info/henka/interview/202403-crafting-the-perfect-cover-letter) the fact that I do not have a BaC and additional Phd in communicating with dogs and other animals discarded me from the selection, also I am Italian(not in Japan or the United States) and at the time did not have a Github profile which I guess didn't help, but goes to show that they haven't run, read the the code or even skimmed through the cover letter and possibly the curriculum.
 * I hate corporate and I encourage any HENNGE employees to come to this address(Via I Maggio, 8, 21022 Azzate VA) and eat my ass or fight me, one the two.
 Maybe with an 20 extra years of experience in the field in big companies and selling my kidney for an education I'll be able to be taken into consideration.
 
@@ -70,6 +70,6 @@ Have a good day.
 
 [What is HENNGE?](https://youtu.be/z9RmzUCbdco?si=o6gt3d2qi3gdkvXy)
 
-I advise you to "change" your work uniform you retard.
+How about you change your uniform one more time you retard?
 
 Ted Kaczynski had a good paper on the power of technology if you wanna read some.
